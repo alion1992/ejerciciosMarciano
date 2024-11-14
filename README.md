@@ -1,0 +1,1 @@
+como instalar la aplicación
